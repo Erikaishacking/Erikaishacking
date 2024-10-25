@@ -1,0 +1,7 @@
+- Pleasant salutations, I’m @Erikaishacking
+- I love anime, tanks, and visual novel games
+- I’m currently learning German and coding
+- I’m looking to collaborate on games and websites
+- You can reach me at mythrantyr@gmail.com
+- My pronouns are she/her
+- There is a girl in an anime I like that shares a birthday, name, favourite color, favorite tank, favorite flower, favorite food, and other odd similarities. I could go on and on about that but I do not wish to bore you all to your deaths.
